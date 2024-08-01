@@ -1,1 +1,0 @@
-# AdamStore21
